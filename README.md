@@ -1,6 +1,6 @@
 # 268bypasser
 
-ALL WORKED CREATED BY FISHY.
+ALL WORK HERE IS CREATED BY FISHY.
 
 Q & A:
 # How do I use this?
